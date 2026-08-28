@@ -3,7 +3,7 @@ Easy Fluffy Pancakes
 Ingredients — makes about 8–10 pancakes
 
 1½ cups (190 g) all-purpose flour  
-2 tbsp sugar  
+5 tbsp sugar  
 2 tsp baking powder  
 ½ tsp salt  
 1¼ cups (300 ml) milk  
